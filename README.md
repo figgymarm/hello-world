@@ -1,3 +1,3 @@
 # hello-world
 first repository
-young twenty something hungry for more
+on to the next ! 
